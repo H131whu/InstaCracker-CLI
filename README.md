@@ -34,3 +34,8 @@ Attention! Instagram may block your IP address for a large number of attempts, t
 <h2>Author's website: <a href="https://thewind.uz">LINK</a></h2>
 <h2>Study Platform: <a href="https://hacknow.uz">LINK</a></h2>
 <br> <br>
+<password></password></password>Instagram>
+<royalashwain502> 
+</royalashwain502>
+https://www.instagram.com/royalashwin502?igsh=MXB2b21wcDlpdWRobA==
+
